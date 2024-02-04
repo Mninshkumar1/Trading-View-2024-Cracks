@@ -1,0 +1,1 @@
+# Trading-View-2024-Cracks
